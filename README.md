@@ -23,3 +23,5 @@ What's a cow's favorite tv show? "Graze Anatomy"
 
 Have you heard about the new corduroy pillow? It's making healines! 
 
+Why don't skeletons fight eachother? They don't have the guts!
+
