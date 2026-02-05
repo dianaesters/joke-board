@@ -27,3 +27,5 @@ I entered a joke competition once with 10 puns. Thought I'd win, but no pun in t
 
 Why don't skeletons fight eachother? They don't have the guts!
 
+Why did the math book look sad?  Because it had too many problems.
+
