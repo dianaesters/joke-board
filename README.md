@@ -29,3 +29,5 @@ Why don't skeletons fight eachother? They don't have the guts!
 
 What's the difference between a deer and a reindeer? A reindeer has to carry an umbrella!
 
+Why did the math book look sad?  Because it had too many problems.
+
